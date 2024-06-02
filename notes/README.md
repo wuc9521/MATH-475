@@ -1,0 +1,1 @@
+Check [this link](https://drive.google.com/drive/folders/1NyPOx0_Do2FQdy3BurR8j908EEpGQP8b?usp=drive_link) for all the handwritten notes by the instructor.
